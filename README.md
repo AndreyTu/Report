@@ -1,1 +1,2 @@
-![Скриншот 10-08-2024 195943](https://github.com/user-attachments/assets/cc7b08f4-c81d-463f-b599-d93f17bb013b)
+![image](https://github.com/user-attachments/assets/aa73ec7c-2dc8-42bb-9553-ff8a76722892)
+
